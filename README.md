@@ -11,7 +11,7 @@
 
 **Email:** beysenbay.daniyal@bk.ru
 
-**Telegram:** @ifcikf
+**Telegram:** @goodjoob7
 
 # About Me 
 I am 21 years old and I graduated from Astana IT University in Cybersecurity. I work as a technical specialist, but I want to change my career and move into IT.
